@@ -23,7 +23,7 @@ March 4, 2015
 
 1. As we opened the window to let out a huge bumblebee, the car accidentally swerved into an oncoming car.
 2. After completed seminary training, women's access to the pulpit has often been denied.
-3. Deciding to join the navy, the recruiter enthusiastically shook Joe's hand.
+3. The recruiter enthusiastically shook Joe's hand once he decided to join the navy
 4. Upon entering the doctor's office, a skeleton caught my attention.
 5. To please the children, some fireworks were set off a day early.
 6. Though only sixteen, UCLA accepted Martha's application.
